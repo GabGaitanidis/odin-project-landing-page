@@ -1,2 +1,3 @@
 # odin-project-landing-page
-dscdsmcmd
+Follow me on Instagram:
+    @gaitanidiis
